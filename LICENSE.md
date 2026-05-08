@@ -1,4 +1,4 @@
-
+Get the ultimate Adobe Illustrator for macOS panel with Adobe Illustrator for macOS exclusive Panel - vector export and content-aware fill. Featuring vector export and
 
 
 
